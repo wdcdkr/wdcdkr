@@ -25,9 +25,9 @@ i use tone indicators most of the time. thumbs up emoji.
 <p align="right">
 standard dni. if you're a real freak then i'm hiding you lol.
 
-## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ∙
+## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ∙ — interests
 <p align="right">
-very multifandom. here are just a few big ones:
+very multifandom, ints appreciated. here are just a few big ones:
 <p align="right">
 <sup>stanley parable, gravity falls, ultrakill, valve games</sup>
 </p>
