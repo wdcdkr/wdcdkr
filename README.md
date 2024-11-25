@@ -8,7 +8,7 @@ hello. call me sleepy, dok, or svixer.
 <p align="right">
 <sup>✦ i'm usually in the bush outside the cafe (gravity falls area) or the pokemon area.</sup>
 
-## 〣 ᵀᵃᵏᵉ ᵐʸ ᵖᶦᶜᵗᵘʳᵉ˒ ⁿᵒʷ˒ ˢʰᵃᵏᵉ ᶦᵗ ᵗᶦˡ' ʸᵒᵘ ˢᵉᵉ ᶦᵗ∙ — more
+## 〣 ᵀᵃᵏᵉ ᵐʸ ᵖᶦᶜᵗᵘʳᵉ˒ ⁿᵒʷ˒ ˢʰᵃᵏᵉ ᶦᵗ ᵗᶦˡ' ʸᵒᵘ ˢᵉᵉ ᶦᵗ∙ — pt specifics
 <p align="right">
 DO NOT copy / take heavy inspiration from my skins.
 <p align="right">
@@ -19,12 +19,22 @@ if i'm asleep on pt, it probably means i'm afk/offtab.
 <sup>✦ whispering me is best; i'm usually focused on the personal chat tab.</sup>
 
 <p align="right">
-basic dni.
+standard dni. if you're a real freak then i'm hiding you lol.
 
+## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ•
+<p align="right">
+very multifandom. here are a just a few big ones:
+<p align="right">
+<sup>stanley parable, gravity falls, ultrakill, valve games</sup>
+</p>
+<p align="right">
+<sup>hollow knight, hades, dialtown, inscryption, ut/dr, ahit</sup>
+</p>
+<p align="right">
+<sup>ace attorney+layton, pokemon, disco elysium, hfjone, dialtown</sup>
 
+## ⚙︎ ᴼᵛᵉʳᵖᵒʷᵉʳᵉᵈ˒ ᵐʸ ᵈᵉˢᶦʳᵉ ᶦˢ ᵗᵒ ᵐᵉᵉᵗ ʸᵒᵘ ᶦⁿ ᵗʰᵃᵗ ˢᵖᶦʳᵉ !
+
+<p align="center">
 i'll add more stuff to this when i want to. have a nice day/night.
-
-<!---
-wdcdkr/wdcdkr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+</p>
