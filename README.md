@@ -4,7 +4,7 @@
 <p align="right">
 hello. call me sleepy, dok, or svixer.
 <p align="right">
-<sup>i am a neurodivergent adult. not mdni, but i prefer you not interacting. it's not personal.</sup>
+<sup>i am a neurodivergent adult. not mdni, but i'd prefer you not interact. it's not personal.</sup>
 <p align="right">
 <sup>✦ i'm usually in the bush outside the cafe (gravity falls area) or the pokemon area.</sup>
 
@@ -16,12 +16,16 @@ friends can c+h freely, but if i don't know you, ask.
 <p align="right">
 if i'm asleep on pt, it probably means i'm afk/offtab.
 <p align="right">
+i use tone indicators most of the time. thumbs up emoji.
+<p align="right">
 <sup>✦ whispering me is best; i'm usually focused on the personal chat tab.</sup>
+<p align="right">
+<sup>✦ bear with me; i'm shy at first, and obvs don't always want to chat.</sup>
 
 <p align="right">
 standard dni. if you're a real freak then i'm hiding you lol.
 
-## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ•
+## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ∙
 <p align="right">
 very multifandom. here are a just a few big ones:
 <p align="right">
@@ -36,5 +40,5 @@ very multifandom. here are a just a few big ones:
 ## ⚙︎ ᴼᵛᵉʳᵖᵒʷᵉʳᵉᵈ˒ ᵐʸ ᵈᵉˢᶦʳᵉ ᶦˢ ᵗᵒ ᵐᵉᵉᵗ ʸᵒᵘ ᶦⁿ ᵗʰᵃᵗ ˢᵖᶦʳᵉ !
 
 <p align="center">
-i'll add more stuff to this when i want to. have a nice day/night.
+i'll add more stuff to this if/when i want to. have a nice day/night.
 </p>
