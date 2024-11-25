@@ -27,7 +27,7 @@ standard dni. if you're a real freak then i'm hiding you lol.
 
 ## 𝄞 ᵀʰᵉ ᵇᵉˢᵗ ᵈᵉᶠᵉⁿᶜᵉ ᶦˢ ᵃ ᵗᶦᵐᵉˡᵉˢˢ ᵗʳᵃᶜᵏ∙
 <p align="right">
-very multifandom. here are a just a few big ones:
+very multifandom. here are just a few big ones:
 <p align="right">
 <sup>stanley parable, gravity falls, ultrakill, valve games</sup>
 </p>
