@@ -39,7 +39,7 @@ very multifandom, ints appreciated. here are just a few big ones:
 <sup>hollow knight, hades, dialtown, inscryption, ut/dr, ahit</sup>
 </p>
 <p align="right">
-<sup>ace attorney+layton, pokemon, disco elysium, hfjone, dialtown</sup>
+<sup>ace attorney+layton, pokemon, disco elysium, hfjone, ror2</sup>
 
 ## ⚙︎ ᴼᵛᵉʳᵖᵒʷᵉʳᵉᵈ˒ ᵐʸ ᵈᵉˢᶦʳᵉ ᶦˢ ᵗᵒ ᵐᵉᵉᵗ ʸᵒᵘ ᶦⁿ ᵗʰᵃᵗ ˢᵖᶦʳᵉ !
 
