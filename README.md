@@ -18,6 +18,10 @@ if i'm asleep on pt, it probably means i'm afk/offtab.
 <p align="right">
 i use tone indicators most of the time. thumbs up emoji.
 <p align="right">
+i don't really care about many ships, but don't force any on me and-
+<p align="right">
+-don't js assume i align with one, or even that i'm in a relationship.
+<p align="right">
 <sup>✦ whispering me is best; i'm usually focused on the personal chat tab.</sup>
 <p align="right">
 <sup>✦ bear with me; i'm shy at first, and obvs don't always want to chat.</sup>
