@@ -6,7 +6,7 @@ hello. call me sleepy, dok, or svixer.
 <p align="right">
 <sup>i am a neurodivergent adult. not mdni, but i'd prefer you not interact. it's not personal.</sup>
 <p align="right">
-<sup>✦ i'm usually in the bush outside the cafe (gravity falls area) or the pokemon area.</sup>
+<sup>✦ usually in the bush outside the cafe (gravity falls area), or the pokemon area. or the sea.</sup>
 
 ## 〣 ᵀᵃᵏᵉ ᵐʸ ᵖᶦᶜᵗᵘʳᵉ˒ ⁿᵒʷ˒ ˢʰᵃᵏᵉ ᶦᵗ ᵗᶦˡ' ʸᵒᵘ ˢᵉᵉ ᶦᵗ∙ — pt specifics
 <p align="right">
