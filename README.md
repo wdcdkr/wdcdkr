@@ -33,7 +33,7 @@ standard dni. if you're a real freak then i'm hiding you lol.
 <p align="right">
 very multifandom, ints appreciated. here are just a few big ones:
 <p align="right">
-<sup>stanley parable, gravity falls, ultrakill, valve games</sup>
+<sup>stanley parable, gravity falls, ultrakill, valve games, house md</sup>
 </p>
 <p align="right">
 <sup>hollow knight, hades, dialtown, inscryption, ut/dr, ahit</sup>
