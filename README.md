@@ -2,7 +2,7 @@
 ## ↻  ᴮᵘᵗ ᵗʰᵉ ᵛᵒʸᵃᵍᵉʳ ʷᵒᵘˡᵈ ᶠˡʸ ᵒⁿ˒ ᵇᵉᵃʳᶦⁿᵍ ᵃ ᵈᶦˢᵏ˒ ᵃ ᵐᵉᵐᵒʳʸ∙ — basics
 <sup>✦ This was made for PT.</sup>
 <p align="right">
-hello. call me sleepy, dok, or svixer.
+hello. call me sleepy, tenna, dok, or svixer.
 <p align="right">
 <sup>i am a neurodivergent adult. not mdni, but i'd prefer you not interact. it's not personal.</sup>
 <p align="right">
