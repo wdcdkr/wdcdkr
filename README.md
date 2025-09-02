@@ -6,13 +6,13 @@ hello. call me sleepy, tenna, dok, or svixer.
 <p align="right">
 <sup>i am a neurodivergent adult. not mdni, but i'd prefer you not interact. it's not personal.</sup>
 <p align="right">
-<sup>✦ usually in the bush outside the cafe (gravity falls area), or near spawn.</sup>
+<sup>✦ usually in the bush outside the bakery, or near spawn.</sup>
 
 ## 〣 ᵀᵃᵏᵉ ᵐʸ ᵖᶦᶜᵗᵘʳᵉ˒ ⁿᵒʷ˒ ˢʰᵃᵏᵉ ᶦᵗ ᵗᶦˡ' ʸᵒᵘ ˢᵉᵉ ᶦᵗ∙ — pt specifics
 <p align="right">
 DO NOT copy / take heavy inspiration from my skins.
 <p align="right">
-friends can c+h freely, but if i don't know you, ask.
+friends/green names can c+h freely, but if i don't know you, ask.
 <p align="right">
 if i'm asleep on pt, it probably means i'm afk/offtab.
 <p align="right">
